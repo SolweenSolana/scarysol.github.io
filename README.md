@@ -49,7 +49,7 @@ Just chaos, burns, and community haunting Solana until the eternal night.
 ## 🔗 Community Links
 - **Twitter (X):** https://x.com/ScaryS0L 
 - 
-- **Pump.fun:** [link here]  
+- **Pump.fun:** https://pump.fun/coin/6Rzv7tU9AG5ccFzuX5JZitADRDJXAC9Z3EcbR5Dvpump  
 
 ---
 
